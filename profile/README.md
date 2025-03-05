@@ -34,7 +34,7 @@ Estamos prontos para transformar seu próximo evento em uma experiência inesque
 * **Telefone:** (31) 98880-0077
 * **Website:** https://wwww.playcultural.com.br
 
-Siga-nos nas redes sociais:
+### Siga-nos nas redes sociais:
 
 * [Link para o LinkedIn] - EM BREVE...
 * [Instagram](https://www.instagram.com/playcultural/)
