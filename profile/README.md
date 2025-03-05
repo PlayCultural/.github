@@ -30,12 +30,11 @@ Com uma vasta experiência no mercado, a PlayCultural é especialista em criar e
 
 Estamos prontos para transformar seu próximo evento em uma experiência inesquecível!
 
-* **Email:** [EM BREVE...](EM BREVE...)
-* **Telefone:** [EM BREVE...]
-* **Website:** [EM BREVE...]
+* **Email:** [PlayCultural](contato@playcultural.com.br)
+* **Telefone:** [(31) 98880-0077]
+* **Website:** [https://wwww.playcultural.com.br]
 
 Siga-nos nas redes sociais:
 
 * [Link para o LinkedIn] - EM BREVE...
-* [Link para o Instagram] - EM BREVE...
-* [Link para o Facebook] - EM BREVE...
+* [Instagram](https://www.instagram.com/playcultural/)
